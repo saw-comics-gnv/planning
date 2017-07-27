@@ -1,4 +1,4 @@
-#SAW SUPERFRIENDS 
+## SAW SUPERFRIENDS 
 7/20/17
 first meeting! 
 
@@ -9,7 +9,7 @@ WHY WE'RE HERE: everyone’s pitching in, let’s get more organized.
 
 Questions/Sharing: what you’re doing; what you’d like to do; what you’re excited about— possibilities for SAW  
 
-###Lisa
+### Lisa
 **currently**
 -working on brochure
 **would like to**
@@ -21,7 +21,7 @@ Questions/Sharing: what you’re doing; what you’d like to do; what you’re e
 -would like to create a mural, can contact city
 -WORLD DOMINATION
 
-###Melissa
+### Melissa
 **currently**
 -c
 **would like to**
@@ -32,7 +32,7 @@ Questions/Sharing: what you’re doing; what you’d like to do; what you’re e
 - social media— tumblr , instagram (x-posted to twitter and FB).
 - would like to: to help out with tabling and conventions, manage artwalk— ideas. can do cleaning and organizing. wants use info about saw alumni, facutly and guests to lure more students to SAW. how can we get people to contribute? TA-ing for instructors at SAW
 
-###Maxine
+### Maxine
 **currently**
 -c
 **would like to**
