@@ -23,38 +23,58 @@ Questions/Sharing: what you’re doing; what you’d like to do; what you’re e
 
 ### Melissa
 **currently**
--c
-**would like to**
--w
-**possibilites for SAW**
--p
-
 - social media— tumblr , instagram (x-posted to twitter and FB).
-- would like to: to help out with tabling and conventions, manage artwalk— ideas. can do cleaning and organizing. wants use info about saw alumni, facutly and guests to lure more students to SAW. how can we get people to contribute? TA-ing for instructors at SAW
+**would like to**
+- to help out with tabling and conventions, manage artwalk— has lots of ideas. 
+- can do cleaning and organizing.
+- TA-ing for instructors at SAW
+**possibilites for SAW**
+- wants use info about saw alumni, facutly and guests to lure more students to SAW. 
+- how can we get people to contribute? 
 
 ### Maxine
 **currently**
--c
+- redesign of website, better content marketing. helping with marketing online classes. was doing social media. 
 **would like to**
--w
+- content marketing plan, editorial calendar, blog posts, emails. 
+- grant research and writing
+- funding to hire admin person, taxes, 
+- organize spaces
 **possibilites for SAW**
--p
-	•	maxine— redesign of website, better content marketing. helping with marketing online classes. was doing social media. would like to: content marketing plan, editorial calendar, blog posts, emails. grant research and funding to hire admin person, taxes, etc. organize space, etc. Kiran at 3rd house books. curating comics section. sharing resources and images. 
-	•	tom- excited about online courses which are growing. creating a big community. getting more interest. need this to pay the rent because YL is low. one of our students is maybe erin curry’s dad, Chris. handy and able to fix risos! working together to make NS accessible. more outreach in gainesville, using sub-groupings of GNV classes. when school starts it’ll be busy. 7 students. rent on old saw and new saw paid up through end of year.  
-	•	zannah- working on 
+- talk with Kiran at 3rd house books. curating comics section. sharing resources and images. 
 
-Projects 
-Clean-up at SAW - Monday 7pm
-Artwalk- james’ work and screen printing work at OLD SAW/ jesse.  25th 
-planning for SPX- sept 16th & 17th
-promo materials
-	julia gfrorer is coming for VA. 
-	brochure discussion. photographic brochure vs miranda’s art. 
-	contact Cara. your story. plus web address. 
-		dropbox for marketing.
+### Tom 
+**currently**
+- running the school!
+**updates**	
+- one of our students is maybe erin curry’s dad, Chris. handy and able to fix risos!working together to make New SAW accesible
+- when school starts it’ll be busy. 7 students. 
+- rent on old saw and new saw paid up through end of year.  
+**possibilities for SAW**
+- more outreach in gainesville, using sub-groupings of GNV classes. 
+- excited about online courses which are growing. creating a big community. 
+- getting more interest. need this to pay the rent because YL is low. 
 
-New crit group. 
-fairly tale workshops
-mural idea? do we want to do a mural
-curating comics section
-dropbox for marketing.
+### Zannah
+**currently**
+- PR and outreach for evening classes
+**would like to**
+- increase presence in community
+- help develop admin systems/processes for projects
+- think about "co-op" model for the schhool
+**possibilities for SAW**
+- world domination
+
+### Projects 
+- Clean-up at SAW - Monday 7pm
+- Artwalk- james’ work and screen printing work at OLD SAW/ jesse.  25th 
+- Planning for SPX- sept 16th & 17th
+- promo materials; brochure discussion. photographic brochure vs miranda’s art. 
+- website 
+- visiting artists: Julia Gfrorer is coming in spring
+- dropbox for marketing.
+- New crit/drawing group (wednesdays!)
+- fairly tale workshops (w/Roxanne)
+- mural idea? do we want to do a mural
+- curating comics section at 3rd house
+
