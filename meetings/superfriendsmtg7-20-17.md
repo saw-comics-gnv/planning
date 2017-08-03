@@ -10,19 +10,19 @@ WHY WE'RE HERE: everyone’s pitching in, let’s get more organized.
 Questions/Sharing: what you’re doing; what you’d like to do; what you’re excited about— possibilities for SAW  
 
 ### Lisa
-**currently**
+#### currently
 -working on brochure
-**would like to**
+#### would like to**
 -figure out how to appeal to more people
 — do posters, layout, any kind of design
 - has time to volunteer more: can do cleaning, tabling, whatever-- just no heavy lifting!
 - has materials on psychology of color to offer (training materials), 
-**possibilites for SAW**
+#### possibilites for SAW
 -would like to create a mural, can contact city
 -WORLD DOMINATION
 
 ### Melissa
-**currently**
+####currently
 - social media— tumblr , instagram (x-posted to twitter and FB).
 **would like to**
 - to help out with tabling and conventions, manage artwalk— has lots of ideas. 
