@@ -32,7 +32,7 @@ Not Present: Michael, Roxanne
 - wants use info about saw alumni, facutly and guests to lure more students to SAW. 
 - how can we get people to contribute? 
 
-##Maxine
+## Maxine
 #### currently
 - redesign of website, better content marketing. helping with marketing online classes. was doing social media. 
 #### would like to
