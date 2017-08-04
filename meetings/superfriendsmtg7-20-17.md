@@ -5,21 +5,20 @@ first meeting!
 Attendees: Tom, Maxine, Lisa, Melissa, Zannah
 Not Present: Michael, Roxanne
 
-WHY WE'RE HERE: everyone’s pitching in, let’s get more organized.
-
-Questions/Sharing: what you’re doing; what you’d like to do; what you’re excited about— possibilities for SAW  
+**WHY WE'RE HERE:** everyone’s pitching in, let’s get more organized.
+**Questions/Sharing:** what you’re doing; what you’d like to do; what you’re excited about— possibilities for SAW  
 
 ### Lisa
 #### currently
--working on brochure
-#### would like to**
--figure out how to appeal to more people
+- working on brochure
+#### would like to
+- figure out how to appeal to more people
 — do posters, layout, any kind of design
 - has time to volunteer more: can do cleaning, tabling, whatever-- just no heavy lifting!
 - has materials on psychology of color to offer (training materials), 
 #### possibilites for SAW
--would like to create a mural, can contact city
--WORLD DOMINATION
+- would like to create a mural, can contact city
+- WORLD DOMINATION
 
 ### Melissa
 ####currently
@@ -61,20 +60,22 @@ Questions/Sharing: what you’re doing; what you’d like to do; what you’re e
 **would like to**
 - increase presence in community
 - help develop admin systems/processes for projects
-- think about "co-op" model for the schhool
+- think about "co-op" model for the school
 **possibilities for SAW**
-- world domination
+- broad community support and integration
+- dozens of people helping out in an organized, efficient and satisfying way
 
 ### Projects 
-- Clean-up at SAW - Monday 7pm
-- Artwalk- james’ work and screen printing work at OLD SAW/ jesse.  25th 
+- Clean-up at SAW - Monday July 24 7pm
+- Artwalk- james’ work and screen printing work at OLD SAW.  28th of august
 - Planning for SPX- sept 16th & 17th
 - promo materials; brochure discussion. photographic brochure vs miranda’s art. 
 - website 
-- visiting artists: Julia Gfrorer is coming in spring
+- visiting artists: Julia Gfrorer is coming in spring!
 - dropbox for marketing.
-- New crit/drawing group (wednesdays!)
+- presence at farmer's market
+- new crit/drawing group (wednesdays!)
 - fairly tale workshops (w/Roxanne)
-- mural idea? do we want to do a mural
+- mural! can we do a mural
 - curating comics section at 3rd house
 
