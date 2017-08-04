@@ -1,14 +1,15 @@
-## SAW SUPERFRIENDS 
+# SAW SUPERFRIENDS 
 7/20/17
-first meeting! 
+**first meeting!**
 
 Attendees: Tom, Maxine, Lisa, Melissa, Zannah
 Not Present: Michael, Roxanne
 
 **WHY WE'RE HERE:** everyone’s pitching in, let’s get more organized.
-**Questions/Sharing:** what you’re doing; what you’d like to do; what you’re excited about— possibilities for SAW  
 
-### Lisa
+**QUESTIONS/SHARING:** what you’re doing; what you’d like to do; what you’re excited about— possibilities for SAW  
+
+## Lisa
 #### currently
 - working on brochure
 #### would like to
@@ -20,48 +21,48 @@ Not Present: Michael, Roxanne
 - would like to create a mural, can contact city
 - WORLD DOMINATION
 
-### Melissa
-####currently
+## Melissa
+#### currently
 - social media— tumblr , instagram (x-posted to twitter and FB).
-**would like to**
+#### would like to
 - to help out with tabling and conventions, manage artwalk— has lots of ideas. 
 - can do cleaning and organizing.
 - TA-ing for instructors at SAW
-**possibilites for SAW**
+#### possibilites for SAW
 - wants use info about saw alumni, facutly and guests to lure more students to SAW. 
 - how can we get people to contribute? 
 
-### Maxine
-**currently**
+##Maxine
+#### currently
 - redesign of website, better content marketing. helping with marketing online classes. was doing social media. 
-**would like to**
+#### would like to
 - content marketing plan, editorial calendar, blog posts, emails. 
 - grant research and writing
 - funding to hire admin person, taxes, 
 - organize spaces
-**possibilites for SAW**
+#### possibilites for SAW
 - talk with Kiran at 3rd house books. curating comics section. sharing resources and images. 
 
-### Tom 
-**currently**
+## Tom 
+##### currently
 - running the school!
-**updates**	
+#### updates
 - one of our students is maybe erin curry’s dad, Chris. handy and able to fix risos!working together to make New SAW accesible
 - when school starts it’ll be busy. 7 students. 
 - rent on old saw and new saw paid up through end of year.  
-**possibilities for SAW**
+##### possibilities for SAW
 - more outreach in gainesville, using sub-groupings of GNV classes. 
 - excited about online courses which are growing. creating a big community. 
 - getting more interest. need this to pay the rent because YL is low. 
 
-### Zannah
-**currently**
+## Zannah
+#### currently
 - PR and outreach for evening classes
-**would like to**
+#### would like to
 - increase presence in community
 - help develop admin systems/processes for projects
 - think about "co-op" model for the school
-**possibilities for SAW**
+#### possibilities for SAW
 - broad community support and integration
 - dozens of people helping out in an organized, efficient and satisfying way
 
