@@ -1,4 +1,4 @@
-# SAW SUPERFRIENDS 
+# SAW Superfriends
 7/20/17
 **first meeting!**
 
@@ -66,7 +66,7 @@ Not Present: Michael, Roxanne
 - broad community support and integration
 - dozens of people helping out in an organized, efficient and satisfying way
 
-### Projects 
+# Projects 
 - Clean-up at SAW - Monday July 24 7pm
 - Artwalk- james’ work and screen printing work at OLD SAW.  28th of august
 - Planning for SPX- sept 16th & 17th
